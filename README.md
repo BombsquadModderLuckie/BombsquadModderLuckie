@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BombsquadModderLuckie
+- 👀 I’m interested in Bombsquad
+- 📫 Contact me on discord  [ ragelixir. ]
